@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+As an energetic, talented self-starter, I enjoy solving technical problems. Recently, I’ve been fortunate that my love of learning has allowed me to successfully teach myself a number of new technologies, and I look forward to each new challenge.
+
+📫 How to reach me:
+
+elizabethdberube@gmail.com

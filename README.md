@@ -20,3 +20,7 @@ As an energetic, talented self-starter, I enjoy solving technical problems. Rece
 📫 How to reach me:
 
 elizabethdberube@gmail.com
+
+✨ Portfolio page:
+
+https://elizabethdberube.github.io/Updated-Profile/

@@ -23,4 +23,4 @@ elizabethdberube@gmail.com
 
 ✨ Portfolio page:
 
-https://elizabethdberube.github.io/Updated-Profile/
+https://elizabethdberube.github.io/portfolio-page/

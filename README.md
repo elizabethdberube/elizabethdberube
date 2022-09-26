@@ -21,6 +21,3 @@ As an energetic, talented self-starter, I enjoy solving technical problems. Rece
 
 elizabethdberube@gmail.com
 
-✨ Portfolio page:
-
-https://elizabethdberube.github.io/portfolio-page/
